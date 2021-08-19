@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Mnroop
 - 👀 I’m interested in ...anime, sports, coding & martial arts
 - 🌱 I’m currently learning ...coding
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...anything!
 - 📫 How to reach me ...hmnroop123@outlook.com
 
 <!---
